@@ -5,5 +5,6 @@ Milé dámy, musíte mi to prepáčiť, ale asi to tak bolo... Chlap má dušu n
 3. Poslednou a hádam najdôležitejšou prednosťou počítača je fakt, že sa vás nikdy nevypytuje, kde ste boli a s kým, respektíve, kam idete a kedy sa vrátite...
 
 Toľko zatiaľ od nášho vyslaného počítačového maniaka Jara Filipa, ktorý sa nám ohlási opäť v budúcom čísle!
+
 ---
 *Zdroj: [Jaro Filip/Riki0 - oldgames.sk](https://www.oldgames.sk/mag/riki-0/page/28/)*
